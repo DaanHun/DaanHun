@@ -1,4 +1,1 @@
-Hi im DaanHun,
-Currently learning html-css,
-Know a bit of python,
-Discord: DaanHun
+idk wtf im doing
